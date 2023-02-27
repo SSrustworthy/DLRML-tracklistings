@@ -57,11 +57,9 @@ Ok, so now we can fill in the blanks for the Autopia queue listing ca. 2012, giv
 6. Neutral Strings #2 - Neil Amsterdam   MEHS-7 - Media Music Release No. 8 - No. 7 - Neutral Strings in Motion [Reel L-99]
 7. Neutral Strings #3 - Neil Amsterdam   MEHS-7 - Media Music Release No. 8 - No. 7 - Neutral Strings in Motion [Reel L-99] Edit: See note below.
 
-*I determined (with outside help) from this video that Neutral Strings #2 plays followed by Neutral Strings #3, so that fits nicely at the bottom of this partial listing. See [https://youtu.be/U4CD_DzUZeQ?t=66](https://youtu.be/U4CD_DzUZeQ?t=66)*
+*I determined (with help from SoCalRyan of the Library Music Themes forum) from this video that Neutral Strings #2 plays followed by Neutral Strings #3, so that fits nicely at the bottom of this partial listing. See [https://youtu.be/U4CD_DzUZeQ?t=66](https://youtu.be/U4CD_DzUZeQ?t=66)*
 
 It's unclear to me whether this is the full Autopia queue loop, but this is all we have for now, especially since Honda's takeover has introduced new (and arguably less catchy) BGM. Seems like it was always too soft to hear, which is partly why more work hasn't been done on this loop.
-
-If you're wondering where to find Media Music to download, check Youtube. The kind people of the librarymusicthemes forum also post things from time to time.
 
 For reference, it seems that the old loop was still in place as of July 2016 (Honda opened their version in June 2016 after refurb started in Jan 2016). It may have been replaced when Asimo and Bird showed up in March of 2017.
 
@@ -72,5 +70,3 @@ Old loop still present in July 2016:
 New loop can be heard in March 2017:
 
 [https://www.youtube.com/watch?v=ZPzkQ_Id2i8](https://www.youtube.com/watch?v=ZPzkQ_Id2i8)
-
-Edit:

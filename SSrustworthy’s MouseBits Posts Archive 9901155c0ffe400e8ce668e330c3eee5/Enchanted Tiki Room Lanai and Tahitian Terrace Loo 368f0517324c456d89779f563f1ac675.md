@@ -65,8 +65,6 @@ Djali999/FoxxFur noted that the track “Hawaiian Memories” by The Living Stri
 
 The TDL Polynesian Terrace loop just so happens to be identical (at least in which tracks were used) to the Disneyland Hotel’s Tangaroa Terrace loop, which has been compiled by pixelated and StarWarsGalaxysEdge [8, 9].
 
-Now to email Mike about those reels…
-
 ---
 
 **References**

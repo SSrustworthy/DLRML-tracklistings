@@ -18,7 +18,7 @@ The general track order is as follows (verified by lining up tracks side-by-side
 
 *<A few seconds of silence>*
 
-Beginning of "A Bug's Life Suite" (but the album version is slowed down; truncated)
+“Atta”
 
 *<Chime flourish>*
 

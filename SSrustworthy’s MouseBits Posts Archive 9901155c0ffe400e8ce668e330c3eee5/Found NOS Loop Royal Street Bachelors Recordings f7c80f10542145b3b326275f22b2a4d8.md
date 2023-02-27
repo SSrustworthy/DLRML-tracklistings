@@ -33,3 +33,21 @@ My only other piece of insight is from MouseBits member TheWorm. They wrote in 2
 Unfortunately, they never did release an album. But this track is a fantastic record of this fabled NOS favorite.
 
 With regards to whether this loop was truly played at Disneyland, I have no evidence that it did besides the little information offered in these anecdotes. Even still, these individuals might all just be referring to tracks that have circulated from collectors rather than loops actually played in the parks. If anyone has further information, please do speak up! I would love to learn more about whether this loop did play, and whether there were actually AM/PM loops.
+
+***Update 11/02/22***
+
+Current loop can be heard in these videos from 1998 and 1999
+
+[https://youtu.be/4fpvVQaZZj0?t=765](https://youtu.be/4fpvVQaZZj0?t=765)
+
+You have to turn up the volume a bit, but a motif from Royal Garden Blues can be heard pretty clearly from outside the Disney Gallery (competing with the interior audio for the Tomorrowland exhibit)
+
+[https://youtu.be/6kfIzngpFRg?t=669](https://youtu.be/6kfIzngpFRg?t=669)
+
+Royal Street Bachelor loop in this 1996 video (surprisingly very audible in the HM queue!)
+
+The song playing in the video starts at 16:42 in the loop track on the torrent.
+
+[https://youtu.be/e-jeX9HoIPM?t=1753](https://youtu.be/e-jeX9HoIPM?t=1753)
+
+I'm starting to think that the current loop was actually the PM loop, and at some point they just removed the Royal Street Bachelors loop.

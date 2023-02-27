@@ -27,3 +27,5 @@ You can see and hear it in this video, starting at 4:32:
 [https://youtu.be/5yXfc18kBvc?t=272](https://youtu.be/5yXfc18kBvc?t=272)
 
 The Flavor of Hawaii audio can be found in the [Enchanted Tiki Room collection torrent](https://mousebits.com/index.php?page=torrent-details&id=77d041188265dbc1a3f50fad26fc9539bc977b48).
+
+Thanks to SoCalRyan of the Library Music Themes forum for identifying these tracks!

@@ -10,7 +10,7 @@ For anyone who is sad that the original upload disappeared, the WTTM podcast did
 
 One would need to trim of the intro and outro of the podcast to isolate the loop. DisneyChris has also posted a beautifully cleaned up version on his website.
 
-The complete track listing for Superstar Limo was posted online some time ago with some corrections and all missing tracks identified. For convenience, I've posted it here along with some additional formatting and track times as calculated from Djali999's original notes.
+The complete track listing for Superstar Limo was posted online some time ago by SoCalRyan of Library Music Themes with some corrections and all missing tracks identified. For convenience, I've posted it here along with some additional formatting and track times as calculated from Djali999's original notes.
 
 [https://librarymusicthemes.com/index.php?topic=1399.0](https://librarymusicthemes.com/index.php?topic=1399.0)
 
