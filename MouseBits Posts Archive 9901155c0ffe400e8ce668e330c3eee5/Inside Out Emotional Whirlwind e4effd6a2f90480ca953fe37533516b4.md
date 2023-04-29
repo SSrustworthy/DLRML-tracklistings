@@ -42,3 +42,13 @@ Loop length 00:19:54.776
 <crossfade in at 0:27.040, crossfade out at 0:37.032>
 17. Dream a Little Nightmare - Michael Giacchino - Inside Out OST (loop length 00:01:42.983)
 <crossfade in at 0:00.000, silence from 0:39.008 to 0:41.380 removed, fade out at 1:45.803>
+
+---
+
+Update 4/20
+
+I failed to mention in my earlier post that when pixelated captured a second loop, the TripleDent Gum jingle was audible for a few moments. It was only present in the second loop, but not in the same place in the first or third loops in his recording. It was inserted during Rainbow Flyer.
+
+It's supposed to sound like a radio transmission and the loop is uninterrupted when it finishes. It's not inserted as a standalone track that changes the loop order.
+
+Imagine telling people you heard it in line and everyone else tells you it's not in the loop...

@@ -101,3 +101,21 @@ Either way, this is what I’ve been able to scrounge up. Please speak up if you
 [8] Magic Music, Re: Battle Cry Of Freedom - The Blockade House
 
 [https://community.magicmusic.net/threads/battle-cry-of-freedom-the-blockade-house.2834/](https://community.magicmusic.net/threads/battle-cry-of-freedom-the-blockade-house.2834/)
+
+UPDATE 4/20/23
+
+It's a long story, but I have it directly from a Disney lawyer that "Kingdom Coming" was from Ed Sweeney's album, rather than the Civil War series. It is under the title of The Year of Jubilo. And confirmed that "Battle Cry of Freedom" was from Ed as well. So the updated tracklist is as follows:
+
+Frontierland Stockade Entrance v.2 ca. 1992-2012
+Loop length ~6:00
+
+1. Drums of War - The Old Bethpage Brass Band - The Civil War
+2. Battle Cry of Freedom - Ed Sweeney - American Sample OR Passing Through OR A Musical History of Disneyland
+3. When Johnny Comes Marching Home - The Old Bethpage Brass Band - The Civil War
+4. Marching Through Georgia - Jay Ungar, Matt Glaser, Molly Mason, Peter Amidon - The Civil War
+5. Lorena - Jay Ungar, Matt Glaser, Molly Mason - The Civil War
+6. The Year of Jubilo (Kingdom Coming) - Ed Sweeney - American Sampler OR Passing Through
+
+American Sampler was the album used at the time for Ed's tracks, but is now out of print. The tracks were rereleased on Passing Through. You can buy the album or individual tracks on Ed's website:
+
+[https://edsweeneymusic.com/album/1759605/passing-through](https://edsweeneymusic.com/album/1759605/passing-through)
