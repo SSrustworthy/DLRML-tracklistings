@@ -14,13 +14,13 @@ About five minutes of the BGM was released previously as “Mermaid Lagoon Overt
 
 [1] [https://www.youtube.com/watch?v=QTCUL1hBdVA](https://www.youtube.com/watch?v=QTCUL1hBdVA)
 
-[2] **[Re: Ariel's Grotto - Request](https://mousebits.com/smf/index.php?topic=8264.msg76329#msg76329)**
+[2] [**Re: Ariel's Grotto - Request**](https://mousebits.com/smf/index.php?topic=8264.msg76329#msg76329)
 
-[3] **[Re: Avalon Cove at DCA](https://mousebits.com/smf/index.php?topic=7070.msg60088#msg60088)**
+[3] [**Re: Avalon Cove at DCA**](https://mousebits.com/smf/index.php?topic=7070.msg60088#msg60088)
 
 [4] [https://www.youtube.com/watch?v=3CNa7K4zZpg#ws](https://www.youtube.com/watch?v=3CNa7K4zZpg#ws)
 
-[5] **[Tokyo DisneySea Mermaid Lagoon BGM - full loop](https://mousebits.com/smf/index.php?topic=8868.msg84747#msg84747)**
+[5] [**Tokyo DisneySea Mermaid Lagoon BGM - full loop**](https://mousebits.com/smf/index.php?topic=8868.msg84747#msg84747)
 
 [6] Re: Ariel's Grotto BGM Track Identification
 [https://mousebits.com/smf/index.php?topic=10398.msg95697#msg95697](https://mousebits.com/smf/index.php?topic=10398.msg95697#msg95697)

@@ -6,7 +6,7 @@ The Star Trader closed for refurbishment on July 27, 2010 and reopened with a St
 
 On a recent visit, I noticed that there was a loop of Star Wars music in the store and took a short recording with my phone. Unfortunately, it was fairly loud and I wasn’t able to stay long, but I have a ~6 minute recording that I have ID’d from this partial loop recording (I also verified these by lining them up with their source tracks).
 
-****Tomorrowland - Star Trader (partial, take 1, live).m4a****
+**Tomorrowland - Star Trader (partial, take 1, live).m4a**
 
 [https://app.box.com/s/9ihlwp97fzs1hfdbg2tjrkxb0h4jdg4h](https://app.box.com/s/9ihlwp97fzs1hfdbg2tjrkxb0h4jdg4h)
 

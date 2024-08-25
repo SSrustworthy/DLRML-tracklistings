@@ -2,7 +2,7 @@
 
 *Posted by Aubrey on 4/21/23*
 
-**[Quote from: RocketRodsXPR on September 26, 2018, 03:49:28 PM](https://mousebits.com/smf/index.php?topic=9898.msg93016#msg93016)**
+[**Quote from: RocketRodsXPR on September 26, 2018, 03:49:28 PM**](https://mousebits.com/smf/index.php?topic=9898.msg93016#msg93016)
 
 > Mariachi Romantico -Tim Devine
 > 

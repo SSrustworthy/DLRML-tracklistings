@@ -28,29 +28,31 @@ We exhausted several known tracks, both released and unreleased, in trying to id
 
 *<sub-loop 1>*
 
-Unknown 1 **(Update, see bottom of this post)**
+Squip - Kai Vokals - Star Wars: Galaxy’s Edge Oga’s Cantina: R3X’s Playlist #2
 
-Til the Spire (Tamir Muskat and Ori Kaplan; "The Sims 4 Star Wars: Journey To Batuu”) - [https://www.youtube.com/watch?v=i4XckakuxnM](https://www.youtube.com/watch?v=i4XckakuxnM)
+Til the Spire (Tamir Muskat and Ori Kaplan AKA Mus Kat & Nalpak - Star Wars: Galaxy’s Edge Oga’s Cantina: R3X’s Playlist #2
 
 *<sub-loop 2>*
 
-Unknown 2 **(Update, see bottom of this post)**
+E.L.E.E. - Mon Destras, So-Klang -  Star Wars: Galaxy’s Edge Oga’s Cantina: R3X’s Playlist #2
 
-Unknown 3
+After Hours at Oga’s - Bluetopian Blues -  Star Wars: Galaxy’s Edge Oga’s Cantina: R3X’s Playlist #2
 
 *<sub-loop 3>*
 
-Unknown 4 **(Update, see bottom of this post)**
+Bight Size - CU on Naboo -  Star Wars: Galaxy’s Edge Oga’s Cantina: R3X’s Playlist #2
 
-Unknown 5 (Dubbed “Rasta-far-far-away-ian”; audible on WTTM24 Season 4 Episode #16)
+Ma Pateesa (Dubbed “Rasta-far-far-away-ian”) - The Sleemos -  Star Wars: Galaxy’s Edge Oga’s Cantina: R3X’s Playlist #2
 
 *<sub-loop 4>*
 
-Blue Milk Surprise (Adam Gubman and Matthew Wood; "The Sims 4 Star Wars: Journey To Batuu”) - [https://www.youtube.com/watch?v=En7wVwUsSFU](https://www.youtube.com/watch?v=En7wVwUsSFU)
+Blue Milk Surprise (Adam Gubman and Matthew Wood AKA Loth-cats, R3X) -  Star Wars: Galaxy’s Edge Oga’s Cantina: R3X’s Playlist #2
 
-Shakawalla - (Reut Yehudai; Unreleased) - [https://www.youtube.com/watch?v=lpc0yS3TrHc](https://www.youtube.com/watch?v=lpc0yS3TrHc)
+Shakawalla - (Reut Yehudai AKA Kushmara) - Star Wars: Galaxy’s Edge Oga’s Cantina: R3X’s Playlist #2
 
 # Additional unused tracks
+
+Note: These tracks were mostly used in the BSO Radio loop.
 
 Other tracks that were apparently created for Star Wars: Galaxy’s Edge or the Sims game were checked as possibilities, but nothing matched. These include:
 
@@ -99,3 +101,7 @@ Unknown 4 is also audible at 20:13.
 - Unknown 1 (Oga’s) = Unknown 10 (BSO 401.72)
 
 I uploaded live recordings of all of these tracks (thanks to pixelated’s recording!) on the aforementioned BSO 401.72 radio post.
+
+---
+
+Update  3 (5/7/23): Thanks to StarWarsGalaxysEdge for identifying the correct tracks using the new Oga’s Cantina album!!

@@ -48,7 +48,7 @@ So this music is still used on the DLRP Mark Twain, Mike says? Well hot dog! Her
 
 eyore also provided a live recording of the track (with audible narration) on YouTube:
 
-****Mark Twain****
+**Mark Twain**
 
 [http://www.youtube.com/watch?v=kBAy3i5WNWQ#](http://www.youtube.com/watch?v=kBAy3i5WNWQ#)
 
@@ -70,17 +70,17 @@ Mike Cozart also mentions that
 
 which was the “Mark Twain” 40-second track mentioned previously [13]. Also, Mike says that this is when the tracks for the Richard F. Irvine Riverboat began to play [9, 10]. For ease of music identification, I started out with some onboard videos from 1995 and 1998. 
 
-****Disneyland-Mark Twain Riverboat Ride. 1995.****
+**Disneyland-Mark Twain Riverboat Ride. 1995.**
 
 [https://youtu.be/ajZKLg-Ubj4](https://youtu.be/ajZKLg-Ubj4)
 
-****DISNEYLAND, Ca. Mark Twain 1998****
+**DISNEYLAND, Ca. Mark Twain 1998**
 
 [https://youtu.be/XHIiKHqas0s](https://youtu.be/XHIiKHqas0s)
 
 For the 1998 loop, I identified four tracks throughout the video, playing at several different times. “Come Back Sweet Papa” plays at loading, I also discovered that they all show up in Star Orion’s recording of the Tokyo Disneyland Tom Sawyer Island BGM. Who would have thought!
 
-****Tom Sawyer Island - Area Background Music | at Tokyo Disneyland****
+**Tom Sawyer Island - Area Background Music | at Tokyo Disneyland**
 
 [https://youtu.be/r0eV5DVHL8U](https://youtu.be/r0eV5DVHL8U)
 
@@ -112,7 +112,7 @@ Western Saloon
 
 The 1995 video plays the same tracks, although the footage is more choppy. The earliest Mark Twain footage with music that I could find was from 1987:
 
-****Disneyland's Mark Twain Riverboat 1987****
+**Disneyland's Mark Twain Riverboat 1987**
 
 [https://www.youtube.com/watch?v=hGzoiUV97lQ](https://www.youtube.com/watch?v=hGzoiUV97lQ)
 
@@ -140,7 +140,7 @@ It seems safe to say that this loop (which is separate from the attraction narra
 
 The Mark Twain’s musical journey changed in 2010 with the introduction of Pirate’s Lair on Tom Sawyer Island, and the release of Walt Disney Animation’s The Princess and the Frog. I looked at a video from December 8, 2010,  taken two months after the change in narration. At this point, all music was now playing on the same track, and there is no continuous underlying loop.
 
-****Mark Twain Riverboat. Disneyland. Whole Ride. Wednesday. Dec 8. 2010.****
+**Mark Twain Riverboat. Disneyland. Whole Ride. Wednesday. Dec 8. 2010.**
 
 [https://www.youtube.com/watch?v=7U51IuW4ol4](https://www.youtube.com/watch?v=7U51IuW4ol4)
 

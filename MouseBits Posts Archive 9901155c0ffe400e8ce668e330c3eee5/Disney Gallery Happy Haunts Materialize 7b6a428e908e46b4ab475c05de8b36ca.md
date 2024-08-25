@@ -33,7 +33,7 @@ Loop length 00:05:14.112
 There are a lot of SFX present, which I was able to reconstruct using the Disneyland Collection and the unofficial albums. Here you go:
 
 <aside>
-📌 ****Disneyland - MSUSA - Disney Gallery Haunted Mansion 50th (reconstruction).flac****
+📌 **Disneyland - MSUSA - Disney Gallery Haunted Mansion 50th (reconstruction).flac**
 
 [https://app.box.com/s/cow3mbai9ivw23ny1ktd55w6072pkxup](https://app.box.com/s/cow3mbai9ivw23ny1ktd55w6072pkxup)
 
